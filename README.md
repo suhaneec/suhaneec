@@ -57,7 +57,7 @@ I enjoy writing about life and using my creativity to craft meaningful dashboard
 
 ## 📬 **Let’s Connect**
 - **📧 Email**: [suhanichauhan58@gmail.com](mailto:suhanichauhan58@gmail.com)  
-- **💼 LinkedIn**: [Suhanee Chauhan](https://www.linkedin.com/in/suhanichauhaan)  
+- **💼 LinkedIn**: [Suhani Chauhan](https://www.linkedin.com/in/suhanichauhaan)  
 
 ---
 
